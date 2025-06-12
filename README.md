@@ -1,0 +1,1 @@
+# Major_Project-Technical_Analysis_of_Bank_nifty_from_july2024_to_April2025
